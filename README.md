@@ -6,8 +6,7 @@ I'm a Biomedical Engineering student at Anna university, passionate about mergin
 
 📫 Let's Connect
 
-LinkedIn- www.linkedin.com/in/
-akilapcj23
+LinkedIn-https://www.linkedin.com/in/akilapcj23
 
 Email-akilapcj80@gmail.com
 
